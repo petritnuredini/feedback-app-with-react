@@ -7,5 +7,7 @@
 - Linkedin: https://www.linkedin.com/in/petritnuredini/
 
 ![image](https://i.imgur.com/xN0h82U.png)
+
 ![image](https://i.imgur.com/ECpfm2j.png)
+
 ![image](https://i.imgur.com/X4K7Da5.png)
